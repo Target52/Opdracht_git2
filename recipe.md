@@ -1,3 +1,6 @@
+
+
+
 *Press the tofu to remove as much moisture as possible and cut into bite size cubes.
 *Whisk together in a medium size bowl the sauce ingredients. Add the tofu to the sauce and coat well and leave aside while you prepare the rest of your ingredients.
 *Peel and finely chop the garlic and ginger. Cut 3 scallions into roughly 1cm pieces. Finely slice the remaining scallion on the bias for garnish. Cut the dried chillies in half and remove the seeds. Cut the nub/base off the bok choy and cut into thin slices (the green leaves can be more roughly chopped as they will wilt down more easily and quickly when cooked.)
